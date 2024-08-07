@@ -12,4 +12,3 @@ Meu nome é Emilyyzzs
 
 @emilyyzzs_
 
-![](https://media1.tenor.com/m/3V8d2y-NT6cAAAAd/astro-cha-eunwoo.gif)
