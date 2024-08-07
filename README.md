@@ -10,6 +10,4 @@ Meu nome é Emilyyzzs
 
 0000112446864xsp@al.educacao.sp.gov.br
 
-@emilyyzzs_
-
 ![](https://media1.tenor.com/m/-oxUOrwWSJkAAAAd/chae-eun-woo.gif)
