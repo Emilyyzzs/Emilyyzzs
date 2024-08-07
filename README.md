@@ -12,3 +12,4 @@ Meu nome é Emilyyzzs
 
 @emilyyzzs_
 
+![](https://media1.tenor.com/m/-oxUOrwWSJkAAAAd/chae-eun-woo.gif)
